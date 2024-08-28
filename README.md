@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Framework, etc**
 
-- 📫 How to reach me **steambangsat00@gmail.com**
+- 📫 How to reach me **effendyraditya11@gmail.com**
 
 - ⚡ Fun fact **I'am not funny**
 
